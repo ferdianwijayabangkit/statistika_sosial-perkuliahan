@@ -11,7 +11,7 @@ Pusat sumber daya digital resmi untuk mata kuliah Statistika Sosial di Universit
 
 Ini adalah tautan terpusat untuk memantau aktivitas partisipatif dan keaktifan mahasiswa selama perkuliahan. Pastikan Anda mengaksesnya secara berkala.
 
-**[Buka Lembar Aktivitas Partisipatif](https://untirtaacid-my.sharepoint.com/:x:/g/personal/ferdian_bangkit_untirta_ac_id/EY6flzMAhI5HlXVi9Mk6bhYB5htS94aYNr0cMCJ2Gyyhow?e=dct5wF)**
+**[Buka Lembar Aktivitas Partisipatif](https://untirtaacid-my.sharepoint.com/:x:/g/personal/ferdian_bangkit_untirta_ac_id/IQDZ-LzxHLN_TY5EfyclUuUYAUcWILt5L-dWtMmw-D5HpP8?e=nbGala)**
 
 **[Buka Kumpulan Ebook & Referensi](https://drive.google.com/drive/folders/1-ODVh9n_Cqn6o-f0EEfG6CJJIztg9HPP?usp=sharing)**
 
